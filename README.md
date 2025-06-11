@@ -1,1 +1,1 @@
-# ipnu-ippni-ma-ma-arif
+# ipnu-ippnu-ma-ma-arif
